@@ -1,0 +1,128 @@
+# Cupping Therapy
+
+- Dry Cupping
+	- Warm Water bath
+- Olive Oil - wound healing properties
+- Cocunut or seasame oil
+- Weak/Light or Tonifying Cupping
+	- Apply Just suction on a point
+	- Apply for Blood & QI Deficient use cases
+	- Eliminate Stagnation with Blood & Qi Deficiency
+- Medium Cupping
+	- Applies more Suction than weak
+	- Used for Tonifying method
+- Strong Cupping
+	- Suction applied deeper level
+	- Used for Sedation Techniques
+	- Can be depend on skin nature
+- Moving Cupping
+	- Similar to massage therapy with cups
+	- Especially for pain relief
+	- Apply light or strong suction depends on condition
+- Needle Cupping
+	- Muscular Areas
+	- Painful Muscular on Bi syndrom
+	- Painful Muscular conditions
+	- Contra Indicated with "Back-shu & Front-mu" Points
+- Moxa Cupping
+	- Applies for Cold Syndrom
+	- All symptoms related to Cold
+	- If no Yang Pulses, apply this cup
+- Flash Empty Cupping
+	- Tonifying Method
+	- Cups are placed and removed rapidly
+	- Medium Cup used
+- Herbal Cupping
+	- Performed with Herbs based on condition
+	- Bamboo Cup is boiled with herbs and applied on the skin
+- Water Cupping
+	- Localised Pain & Swelling
+	- Mostly applied in regulating Lung Qi
+- Wet Cupping (Hijama)
+	- Volume of Blood Letting from the point
+	- TCM Wet Cup & Hijama are different
+	- Iron Absorption Capacity Increases
+- TCM Wet Cupping
+	- Remove Stagnation with a drop of blood letting
+	- to improve blood & QI circulation on a stagnant area
+	- Iron Absorption Capacity Increases
+	- Lunar Days 17,19,21 days will have more healing properties
+	- Summer Season is best
+	- Extreme WInter Season Not suitable
+- Do's
+	- Head bath before Hijama
+	- Empty Stomach
+	- 
+- Do not Use Hijama
+	- Wound Healing Disorder
+	- Hemophilia
+	- Anti Coagulation Drugs Consumer
+	- Anemia
+	- Pregnancy/Menstruation
+	- Insulin Dependent
+	- No Needling Points (Dangerous Points)
+	- K3, Lu9, ArmPit, Artery paths
+- Shen Soul (Mind)
+- Carporial Soul
+	- Lives with unhappy and sadness
+	- Metal Element
+- Ethereal Soul
+	- Goalless Person
+- Spleen
+	- Thuvarpu
+	- Pulse is Hypo
+		- No Cupping only Dry Cup can be applied
+		- Blood Letting should not be done
+- Stomach
+	- Sweet
+	- Pulse is Hypo
+		- No Cupping only Dry Cup can be applied
+		- Blood Letting should not be done
+- Massage Oil
+	- Velleruku
+		- White Color Flower
+		- 50g
+		- Cold
+	- Poovarasu ilai
+		- 50g
+		- Heat
+	- Ada thodai ilai
+		- 50g
+	- Vatharasu
+		- 50g
+	- Murungai ilai
+		- 50g
+		- Good for thasai pidipu
+		- Agravates skin problems
+Oils for combination (100ml)
+- gingely oil
+- Mustard Oil
+	- Well for pains
+- Neem Oil
+- Pongu Oil
+- Caster Oil
+- Pregnancy People with muscle loosening
+	- Mala kadai veedhi, vanarapettai
+	- Keera kadai amma
+	- Cocunut oil, seasame oil, murungai ilai, vettiveru, kilangu manjal
+- Add ghee for better results
+- Add below after preparation
+	- Karpuram & omam salt for viruviruppu
+	- Add 1 spoon minsara thailam
+- Preparation
+	- Boil above oils and pour some water if it just form up or create some sensation, then it is ready
+
+- Skin Glow
+	- Vetti ver - 50g
+	- Vilamichu ver - 50g
+	- Manjal - 50g
+	- Murungai
+	- Sandal
+	- Seasame Oil - 100ml
+	- Coconut Oil - 100ml
+	- Pungai Oil (keep it separately as it smells different)
+	- Pinnai Oil - 100ml
+- Aripathikara chooranam
+- Dont Do Cupping for
+	- Below Teenage & above 60 yrs
+	- Not Wet Cupping & Heat Cupping
